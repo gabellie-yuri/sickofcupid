@@ -17,7 +17,7 @@ $${\color{lightblue}"Your \space my \space baby,\space say \space it \space to \
 
 <div align="center"> 
 	
-[Cinno](https://rentry.co/sece63qr) ☆ [Strawpage](https://ellierocks.straw.page)☆[Atabook](https://skibidiellieparker.atabook.org/)  ☆ [Support Palestine](https://arab.org/click-to-help/palestine/)
+☆ [Strawpage](https://ellierocks.straw.page)☆[Atabook](https://skibidiellieparker.atabook.org/)  ☆ [Support Palestine](https://arab.org/click-to-help/palestine/)
 
 
 ![](https://komarev.com/ghpvc/?username=neurodiellie&label=profile+gang&style=for-the-badge&color=add8e6)
