@@ -17,7 +17,7 @@ $${\color{#A63922}"Can \space We \space Call \space  Today? \space I \space just
 
 <div align="center"> 
 	
-☆ [Strawpage](https://ellierocks.straw.page)☆[Atabook](https://skibidiellieparker.atabook.org/)  ☆ [Support Palestine](https://arab.org/click-to-help/palestine/)
+☆ [Strawpage](https://ellierocks.straw.page)☆[Atabook](https://ellieparkerbutpixel.atabook.org/)  ☆ [Support Palestine](https://arab.org/click-to-help/palestine/)
 
 
 ![](https://komarev.com/ghpvc/?username=neurodiellie&label=profile+gang&style=for-the-badge&color=543034)
